@@ -1,1 +1,1 @@
-# JamesBarber.io
+# JB.io
